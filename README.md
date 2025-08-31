@@ -67,6 +67,6 @@ All rights reserved. Any reproduction, reverse engineering, or commercial use re
 
 ## 📬 Contact
 - X: [@xkal3b](https://x.com/xkal3b)  
-- Email: **kbrnhrt@gmail.com**  
+- 💬 Telegram: [@kb441](https://t.me/kb441) 
 
 **For licensing or partnership opportunities, please reach out directly.**  
